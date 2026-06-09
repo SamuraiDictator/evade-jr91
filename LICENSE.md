@@ -1,4 +1,4 @@
-
+updated Script for evade is the best evade Script, featuring no clip and one-hit kill. Safe and powerful for all your needs.
 
 
 
